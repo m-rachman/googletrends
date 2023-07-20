@@ -1,1 +1,1 @@
-# googletrends
+[Click here to read the article on YouTube and Young Voters: Exploring the Impact of Digital Platforms in Elections](https://medium.com/@mhmd.rachman/youtube-and-young-voters-exploring-the-impact-of-digital-platforms-in-elections-75b8099d2a11)
